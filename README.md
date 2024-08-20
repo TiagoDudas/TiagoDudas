@@ -10,7 +10,8 @@ Meu nome é Tiago José Dudas
 ### Vocẽ pode entrar em contato comigo 📫:
 Email 📧: dudas.tiago@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/hollow-knight-reading-map-pixel-art-gif-8043633549067461458)
+![](https://media1.tenor.com/m/LoYk34EioL8AAAAd/nailsmith-paintmaster.gif)
+
 <!--
 **TiagoDudas/TiagoDudas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
