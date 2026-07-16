@@ -13,11 +13,11 @@ Motivado pela complexidade de jogos como Blue Archive, Limbus Company, Subnautic
 Email Escolar 📧: dudas.tiago@escola.pr.gov.br
 Email Pessoal 📧: tiagostudios719@gmail.com
 
-![](https://tenor.com/pt-BR/view/takanashi-hoshino-blue-archive-gif-8686497294649851097)
+![](https://media1.tenor.com/m/eIyjRDX-_NkAAAAd/takanashi-hoshino-blue-archive.gif)
 
-![](https://tenor.com/pt-BR/view/shiroko-dance-blue-archive-meme-gif-7832042422587189924)
+![](https://media1.tenor.com/m/bLEBFmAZaqQAAAAd/shiroko-dance.gif)
 
-![](https://tenor.com/pt-BR/view/blue-archive-yuuka-maki-thumbs-up-blue-archive-maki-yuuka-dead-thumbs-up-gif-2724078571444911982)
+![](https://media1.tenor.com/m/Jc3fByc6P24AAAAd/blue-archive-yuuka.gif)
 
 ![](https://media1.tenor.com/m/LoYk34EioL8AAAAd/nailsmith-paintmaster.gif)
 
